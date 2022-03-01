@@ -6,3 +6,7 @@ I'm Upcoming Engineering Graduate! <br>
 ᴠɪʙɪɴɢ ᴛᴇᴇɴᴀɢᴇ-ᴡɪᴛʜ ᴋɪɴᴅ ʜᴇᴀʀᴛ<br>
 ᴇxᴘʟᴏʀɪɴɢ ɴᴇᴡ ◔◡◔<br>
 ɪ'ʟʟ🎯<br>
+ʜᴀɴɢ ꜱᴍᴀʀᴛ
+
+
+
